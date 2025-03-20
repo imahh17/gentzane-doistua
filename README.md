@@ -2,4 +2,4 @@ Personal Portfolio
 
 Gentzane Doistua
 
-Content Creator - Publicidad y Relaciones Públicas
+Publicidad y Relaciones Públicas - Estratega de comunicación - Content Creator - Ejecutiva de cuentas
